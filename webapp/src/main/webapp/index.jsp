@@ -4,5 +4,3 @@
 <h1> Thank You. Nanna and Amma.! <h1>
 <h1> For giving me the best life <h1>
 		<h1> <..> .|. <..> <h1>
-				<h1> your friend raju<h1>
-						<h1> Love you all <h1>
