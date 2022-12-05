@@ -4,6 +4,4 @@
 <h1> I am a graduated Enginnering student in ECE From Sir CV Raman Institute of Technology and Sciences.<h1>
 <h1> Ones again Thank YOu..! </h1>
 				<h1> <..> !.....Thank You.....! <..> <h1>
-				<h1> <..> !.....Thank You.....! <..> <h1>
-				<h1> <..> !.....Thank You.....! <..> <h1>
-				<h1> <..> !.....Love You all.....! <..> <h1>
+				<h1> <..> !..... ._. .....! <..> <h1>
